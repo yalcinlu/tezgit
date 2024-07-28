@@ -1,0 +1,1 @@
+Evet buraya ilk satırlarımı yazıyorum. 
